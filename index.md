@@ -1,1 +1,1 @@
-how cow im so cooked for finals
+holy cow im so cooked for finals
